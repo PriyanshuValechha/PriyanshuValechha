@@ -37,9 +37,9 @@ Currently focused on:
 
 ### 📫 Connect With Me
 - *GitHub*: [PriyanshuValechha](https://github.com/PriyanshuValechha)
-- *LinkedIn: *([Add your LinkedIn link here](https://www.linkedin.com/in/priyanshu-valechha-325550284?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app ))
+- *LinkedIn: *([LinkedIn](https://www.linkedin.com/in/priyanshu-valechha-325550284?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app ))
 - *Instagram*: [@FiguringOutwithPrii](https://instagram.com/figuringoutwithprii)
 
 ---
 
-> "Still figuring it out, but moving forward every day."
+> Still figuring it out, but moving forward every day.
